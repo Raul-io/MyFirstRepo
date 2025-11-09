@@ -1,0 +1,1 @@
+Me llamo Raúk Rodrígues Escolano, me gusta la informática,jugar videjuegos, leer, dibujar, a veces escribo y ver series de todo.
